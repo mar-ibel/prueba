@@ -1,5 +1,5 @@
 # prueba
-ya estoy
-quiero
-necesito
-odio
+ya estoy no.
+quiero no.
+necesito no.
+odio no.
